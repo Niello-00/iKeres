@@ -21,3 +21,25 @@ Hello
 World :)
 
 I'm Niello
+
+I apologize, to the ~10 mysterious clone(s)
+
+I suppose,
+Realistically
+I do need a degree <3
+So, 
+Sorry,
+
+I, normally, do not, withold information,
+
+Yet, Realistically,
+I do not like shadows.
+
+I am humbly of the opinion, 
+Love to be found in the Strangest of Places. 
+
+Sorry for wasting your time :( shadows.
+
+I love to write, learn, read & more however.
+
+I wish to study, become properly educated, before, I, digress. 
